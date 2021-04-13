@@ -43,3 +43,6 @@
 ### Les miens
 
 > Formation pour le moment tres interessante et tres prenante, hate d'en decouvrir encore plus...
+
+### Commentaires tiers
+Mheu! Cordialement, Enzo.
